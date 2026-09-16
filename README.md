@@ -1,0 +1,1 @@
+# geim-diagnostika-6
